@@ -17,7 +17,7 @@ Here are some ideas to get you started:
 -->
 
 I'M TANMAY SRIVASTAVA
-A Computer Science student at National Institute Of Technology ,Hamirpur.
+   a Computer Science student at National Institute Of Technology ,Hamirpur.
 
 Here goes some facts about me
 - 🌱 I’m currently learning kivy ..... 

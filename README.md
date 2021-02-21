@@ -32,5 +32,5 @@ To contact you can DM me on insta
  I'm also on Quora
  https://www.quora.com/profile/Tanmay-Srivastava-124?ch=3&share=519b22e5&srid=uBZF8o
  
- Do contact me if you are looking for someone to help you in your project,I assure you even if I fail to help you I'll give you some amazing ideas 
-  .....I'm not a proffesional but I aim to be....your project might help me learn something  ... so it will be helpful for both the parties!!!
+ Do contact me if you are looking for someone to help you in your project,I assure you even if I fail to help you I'll give you some amazing ideas
+  .....I'm not a proffesional but I aim to be....your project might help me learn something  ... so it will be helpful for both the parties!!! 

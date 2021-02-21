@@ -16,8 +16,8 @@ Here are some ideas to get you started:
 - - I look forward to be a part of amazing projects on Artificial Intelligence....
 -->
 
-I'M TANMAY SRIVASTAVA
-                        a Computer Science student at National Institute Of Technology ,Hamirpur.
+I'M TANMAY SRIVASTAVA,
+a Computer Science student at National Institute Of Technology ,Hamirpur.
 
 Here goes some facts about me
 - 🌱 I’m currently learning kivy ..... 

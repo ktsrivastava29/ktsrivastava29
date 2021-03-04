@@ -26,8 +26,8 @@ Here goes some facts about me
 - I look forward to be a part of some amazing projects....
 
 
-To contact you can DM me on insta
- https://www.instagram.com/invites/contact/?i=1dfysfoxdc8cu&utm_content=kw23yg0
+Here goes my LinkedIn profile
+ https://www.linkedin.com/in/tanmay-srivastava-010861207
  
  I'm also on Quora
  https://www.quora.com/profile/Tanmay-Srivastava-124?ch=3&share=519b22e5&srid=uBZF8o
